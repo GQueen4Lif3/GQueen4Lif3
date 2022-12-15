@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @GQueen4Lif3
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+GQueen4Lif3/GQueen4Lif3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+I'm interested In Astrology and making money online 
+I'm currently learning Psychology 
+U can reach me at my email thank you!
